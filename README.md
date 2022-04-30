@@ -1,4 +1,4 @@
-### Olá! Eu sou a Thayná! 🚀
+### Olá! Eu sou a Thayná ✌️
 
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/thaynaalvesc/)
 [![Email](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](mailto:thaynaalvesc@gmail.com)
@@ -17,4 +17,4 @@
 
 <br/></br>
 
-Ainda em processo de aprendizado e evoluindo cada dia mais! 
+Ainda em processo de aprendizado e evoluindo cada dia mais! 🚀
